@@ -1,1 +1,16 @@
 # segundo-cerebro
+
+Objetivo
+Entender o impacto de Nikola Tesla no mundo atual
+
+Fonte de Videos:
+https://www.youtube.com/watch?v=DEbyaW90CwU
+https://www.youtube.com/watch?v=mVAMBkuwICE
+https://www.youtube.com/watch?v=pYP7OGTdYY8
+https://www.youtube.com/watch?v=oEh0Cm94GyQ
+
+Fonte de Texto
+https://pt.wikipedia.org/wiki/Nikola_Tesla
+
+Mapa Mental:
+https://notebooklm.link.google/CjrXZxQmAlfN
